@@ -9,3 +9,7 @@ Will curiosity kill the cat?
 Or will it uncover secrets hidden in the moonlight? 🌙
 A flick of the tail, a silent leap — the hunt begins. 🐈‍⬛
 In the quiet shadows, adventure purrs.
+
+may be cat is going on hunt
+to quench its hunger
+
